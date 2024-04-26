@@ -33,9 +33,13 @@ ce dernier endroit semble être impossible car rien ne se trouva en arrière du 
 Avec ses amis Florence et Maïka, il investiguera cette étrange anomalie,
 mais ils le regretteront tous lorsqu'ils réalisent qu'ils sont pris à tout jamais dans un autre monde étrange.
 Arriveront-ils à s'en sortir?
-<br>
+
+&nbsp;
+
 Kilou Feltin, Docteur en génie chimique, s'est récemment lancé dans l'écriture de romans jeunesse, et ça de désappointe pas!
-<br>
+
+&nbsp;
+
 Le mystère de la ligne bleu est un roman rempli de surprises que les adolescents adoreront.
 Kilou Feltin nous offre une histoire de science-fiction qui va vous remplir d'intrigue
 grâce au mystère qu'il nous offre. J'ai adoré ce roman!
